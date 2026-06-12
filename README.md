@@ -10,15 +10,14 @@
 
 * I'm not roleplaying ships because I'm uncomfortable with it!
 
-* I'm mostly semi-afk writing or doing something in the back! PLEASE WHISPER TO ME AND TALK I WILL LIKE THIS VERY MUCH!!
+* I'm mostly semi-afk writing or doing something in the back! PLEASE WHISPER TO ME AND TALK I WILL LIKE THIS VERY MUCH!! <img width="498" height="412" alt="SpamtennaSpamtonGIF" src="https://github.com/user-attachments/assets/b63f7dce-4bbc-43d5-bdf7-5289352c4176" />
+
 
 * My main interest is deltarune but I also like undertale, resident evil, fear and hunger, JoJo and I don't remember more!!
 
 * My fav music is gothic rock and overall I love goth music. I love everything gothic BUT I DON'T LABEL MYSELF AS A GOTH!
 
-## PLEASE READ MY SPAMTENNA FANFIC!!! I would love to get recognition - link to AO3 under my profile!!
-
-* ![Uploading SpamtennaSpamtonGIF (2).gif…]()
+## PLEASE READ MY SPAMTENNA FANFIC!!! I would love to get recognition - link to AO3 under my profile!! <img width="498" height="412" alt="SpamtennaSpamtonGIF" src="https://github.com/user-attachments/assets/b63f7dce-4bbc-43d5-bdf7-5289352c4176" />
 
 
 
