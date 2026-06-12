@@ -16,7 +16,10 @@
 
 * My fav music is gothic rock and overall I love goth music. I love everything gothic BUT I DON'T LABEL MYSELF AS A GOTH!
 
-## PLEASE READ MY SPAMTENNA FANFIC!!! I would love to get recognition - link to AO3 under my profile!!   <img width="498" height="412" alt="SpamtennaSpamtonGIF" src="https://github.com/user-attachments/assets/b63f7dce-4bbc-43d5-bdf7-5289352c4176" />
+## PLEASE READ MY SPAMTENNA FANFIC!!! I would love to get recognition - link to AO3 under my profile!!
+
+<img width="498" height="412" alt="SpamtennaSpamtonGIF (2)" src="https://github.com/user-attachments/assets/75e60983-e792-4116-97a4-c49108b1d24f" />
+
 
 
 
