@@ -1,4 +1,4 @@
-# Hello!! I'm Natan or Birkin, I use he/him pronouns AND I'M TAKEN!!! ❤️
+# Hello!! I'm Natan or Birkin, I use he/him pronouns AND I'M TAKEN!!! ❤️ 
 
 # FEEL FREE TO TALK!! I'm REALLY looking forward to making friends so INT!! 
 
@@ -10,8 +10,7 @@
 
 * I'm not roleplaying ships because I'm uncomfortable with it!
 
-* I'm mostly semi-afk writing or doing something in the back! PLEASE WHISPER TO ME AND TALK I WILL LIKE THIS VERY MUCH!! <img width="225" height="350" alt="SpamtonDeltaruneGIF" src="https://github.com/user-attachments/assets/dad38036-c891-4f90-87fe-2a1f62e99dcc" />
-
+* I'm mostly semi-afk writing or doing something in the back! PLEASE WHISPER TO ME AND TALK I WILL LIKE THIS VERY MUCH!!
 
 * My main interest is deltarune but I also like undertale, resident evil, fear and hunger, JoJo and I don't remember more!!
 
