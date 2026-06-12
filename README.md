@@ -1,4 +1,4 @@
-## Hello!! I'm Natan or Birkin, I use he/him pronouns AND I'M TAKEN!!!
+									## Hello!! I'm Natan or Birkin, I use he/him pronouns AND I'M TAKEN	!!!
 FEEL FREE TO TALK!! I'm REALLY looking forward to making friends so INT!! 
 I may be socially awkward during some moments so please be patient.
 I may shut down when I'm feeling shy too 😒
