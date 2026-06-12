@@ -1,4 +1,4 @@
-## Hello!! I'm Natan or Birkin and I use he/him pronouns AND I'M TAKEN!!!
+## Hello!! I'm Natan or Birkin, I use he/him pronouns AND I'M TAKEN!!!
 
 <!--
 **PolishDrBirkin/PolishDrBirkin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
