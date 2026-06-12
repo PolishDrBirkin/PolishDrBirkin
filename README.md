@@ -4,9 +4,9 @@
 
 ## Some stuff about me:
 
-* I may be socially awkward during some moments so please be patient.
+* I'am pretty shy and I rarely talk first, but I gladly talk when someone talks first 😔
 
-* I may shut down when I'm feeling shy too 😒
+* I may be socially awkward during some moments so please be patient
 
 * I'm not roleplaying ships because I'm uncomfortable with it!
 
