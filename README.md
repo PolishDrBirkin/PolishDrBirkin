@@ -14,7 +14,7 @@
 
 * My main interest is deltarune but I also like undertale, resident evil, fear and hunger, JoJo and I don't remember more!!
 
-* My fav music is gothic rock and overall I love goth music. I love everything gothic BUT I DON'T LABEL MYSELF AS A GOTH!
+* My fav music is gothic rock and overall I love gothic music. I love everything gothic BUT I DON'T LABEL MYSELF AS A GOTH!
 
 ## PLEASE READ MY SPAMTENNA FANFIC!!! I would love to get recognition - link to AO3 under my profile!!
 
