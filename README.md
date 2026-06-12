@@ -1,5 +1,9 @@
 ## Hello!! I'm Natan or Birkin, I use he/him pronouns AND I'M TAKEN!!!
-IS IT VISIBLE
+FEEL FREE TO TALK!! I'm REALLY looking forward to making friends so INT!! 
+I may be socially awkward during some moments so please be patient.
+I may shut down when I'm feeling shy too 😒
+I'm not roleplaying ships because I'm uncomfortable with it!
+My main interest is deltarune but I also like undertale, resident evil, fear and hunger, JoJo and I don't remember more!!
 
 <!--
 **PolishDrBirkin/PolishDrBirkin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
