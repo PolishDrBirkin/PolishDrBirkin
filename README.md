@@ -8,7 +8,7 @@
 
 * I may be socially awkward during some moments so please be patient
 
-* I'm not roleplaying ships because I'm uncomfortable with it!
+* I'm not roleplaying ships, and I don't like being interacted with just for a ship so pls don't do it, it makes me uncomfortable
 
 * I'm mostly semi-afk writing or doing something in the back! PLEASE WHISPER TO ME AND TALK I WILL LIKE THIS VERY MUCH!!
 
