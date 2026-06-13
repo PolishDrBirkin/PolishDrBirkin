@@ -2,7 +2,7 @@
 
 # FEEL FREE TO TALK!! I'm REALLY looking forward to making friends so INT!! 
 
-## Some stuff about me:
+## Some stuff about interacting with me and some other things:
 
 * I'am pretty shy and I rarely talk first, but I gladly talk when someone talks first 😔
 
