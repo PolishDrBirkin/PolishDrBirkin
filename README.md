@@ -12,6 +12,8 @@
 
 * I'm mostly semi-afk writing or doing something in the back! PLEASE WHISPER TO ME AND TALK I WILL LIKE THIS VERY MUCH!!
 
+* Also I block or hide when I don't feel comfortable
+
 * My main interest is deltarune but I also like undertale, resident evil, fear and hunger, JoJo and I don't remember more!!
 
 * My fav music is gothic rock and overall I love gothic music. I love everything gothic BUT I DON'T LABEL MYSELF AS A GOTH!
