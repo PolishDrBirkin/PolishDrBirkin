@@ -1,5 +1,5 @@
 # I'LL UPDATE MY PAGE SOON IM LAZY SORRY
-
+# Also I'm fucking shy but I gladly talk when someone talks first okay okay
 
 
 
