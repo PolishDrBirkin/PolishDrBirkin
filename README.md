@@ -4,7 +4,7 @@
 
 ## Some stuff about interacting with me and some other things:
 
-* I'am pretty shy and I rarely talk first, but I gladly talk when someone talks first 😔
+* I'am pretty shy and I rarely talk first, but I gladly talk when someone talks first ALSO I'M TRYING MY BEST TO BE NICE SO IF I SEEM RUDE I DON'T MEAN TO BE LIKE THAT!
 
 * I may be socially awkward during some moments so please be patient
 
