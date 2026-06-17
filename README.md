@@ -1,5 +1,5 @@
-# I'LL UPDATE MY PAGE SOON IM LAZY SORRY
-# Also I'm fucking shy but I gladly talk when someone talks first okay okay BUT INT!!!! PLEASE
+# I'LL UPDATE MY PAGE SOON IM LAZY SORRY 
+# Also I'm fucking shy but I gladly talk when someone talks first okay okay BUT INT!!!! PLEASE Also PFP is from Limited Time Offer By Borderlambs on Ao3!!
 
 
 
