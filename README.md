@@ -1,4 +1,4 @@
-* I'm still updating my profile here because it looks shit BUTTTT have what is written here 
+## I'm still updating my profile here because it looks shit BUTTTT have what is written here:
 * Natan/Birkin, I'm really shy and kinda socially anxious I could say?? Socially awkward too
 * Also I kinda struggle with keeping convos up
 * If you wanna talk anyway, INT freely! I'm open to making friends!!
