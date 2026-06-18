@@ -1,7 +1,7 @@
 # I'm still updating my profile here because it looks shit BUTTTT have what is written here 
 # Natan/Birkin, I'm really shy and kinda socially anxious I could say?? Socially awkward too
 ## Also I sometimes can't keep conversations sometimes 
-## If you wanna talk, PLEASE INT!
+## If you wanna talk, PLEASE INT! I'm open to making friends!!
 ## Or W2I if I have it in my name since I'm often off tab or semi-afk 😎
 # PFP is from Limited Time Offer By Borderlambs on Ao3!!
 # Talking about AO3, PLEASE PLEASE PLEASE READ MY SPAMTENNA FIC!!! It's linked under my profile!! 
