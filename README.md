@@ -1,5 +1,5 @@
 # I'm still updating my profile here because it looks shit BUTTTT have what is written here 
-# Natan/Birkin, he/him! I'm really shy and kinda socially anxious I could say?? I don't talk first mostly. 
+# Natan/Birkin, I'm really shy and kinda socially anxious I could say?? I don't talk first mostly. 
 ## Also I sometimes can't keep conversations sometimes, and I get awkward fast
 ## If you wanna talk, PLEASE INT, or W2I if I have it in my name since I'm often off tab or semi-afk 😎
 # PFP is from Limited Time Offer By Borderlambs on Ao3!!
