@@ -1,7 +1,8 @@
 ## I'm still updating my page because how the hell do people make it look good???? Have some stuff anyway 😛:
 - Natan/Birkin
 - I'm really shy, kinda socially anxious, socially awkward and paranoid
-- Also I kinda struggle with making friends and keeping convos up but I'm trying my best
+- I rarely talk first
+- I kinda struggle with making friends and keeping convos up but I'm trying my best
 - If you wanna talk anyway, INT freely! I wanna make some friends very much 
 - W2I if I have it in my name since I'm often off tab or semi-afk 😎
 - Spamtenna and Spamton obsessed drolls 
