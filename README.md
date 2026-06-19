@@ -1,5 +1,5 @@
 ## I'm still updating my page because how the hell do people make it look good???? Have some stuff anyway 😛:
-* Natan/Birkin, I'm really shy and kinda socially anxious I could say?? Socially awkward too
+* Natan/Birkin, I'm really shy, kinda socially anxious, socially awkward and paranoid
 * Also I kinda struggle with keeping convos up
 * If you wanna talk anyway, INT freely! I'm open to new friends but I stuggle with making them crying emoji
 * Or W2I if I have it in my name since I'm often off tab or semi-afk 😎
