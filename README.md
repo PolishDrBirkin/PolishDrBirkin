@@ -5,7 +5,7 @@
 - I kinda struggle with making friends and keeping convos up but I'm trying my best
 - If you wanna talk anyway, INT freely! I wanna make some friends very much 
 - W2I if I have it in my name since I'm often off tab or semi-afk 😎
-- Spamtenna and Spamton obsessed drolls 
+- Spamtenna and Spamton obsessed drools 
 - PFP is from Limited Time Offer By Borderlambs on Ao3!!
 - Speaking about AO3, PLEASE PLEASE PLEASE READ MY SPAMTENNA FIC LINK UNDER MY PROFILE!!
 - My dream is for it to become famous, but it's still in work! 😓
