@@ -8,5 +8,5 @@
 - Spamtenna and Spamton obsessed drools 
 - PFP is from Limited Time Offer By Borderlambs on Ao3!!
 - Speaking about AO3, PLEASE PLEASE PLEASE READ MY SPAMTENNA FIC LINK UNDER MY PROFILE!!
-- My dream is for it to become famous, but it's still in work! 😓
+- My dream is for it to become popular, but it's still in work! 😓
 <img width="498" height="412" alt="SpamtennaSpamtonGIF (2)" src="https://github.com/user-attachments/assets/7ea8a038-f0b8-4782-a774-815e2a00f0a4" />
