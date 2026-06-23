@@ -1,5 +1,6 @@
 ## I made this for pony town!! HI I'm Natan or Birkin :-D
 - I'm very shy, kinda socially anxious, socially awkward and paranoid
+- I overthink EVERYTHING pisses
 - I rarely talk first, but I love talking if someone starts first SO PLS PLS INT!!!!!
 - I tend to shut down sometimes though sigh
 - I kinda struggle with social interactions so please be patient
