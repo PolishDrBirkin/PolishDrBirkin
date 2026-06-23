@@ -8,5 +8,4 @@
 - I like some other stuff than utdr???? Uhh like resident evil, fear and hunger, JoJo
 - i'm Spamtenna and Spamton obsessed drools 
 - PFP is from Limited Time Offer By Borderlambs on Ao3!
-![Uploading SpamtennaSpamtonGIF (2).gif…]()
-
+<img width="498" height="412" alt="SpamtennaSpamtonGIF (2)" src="https://github.com/user-attachments/assets/fa9dbb42-9b00-4efd-9961-c7d20e36ce6c" />
