@@ -1,4 +1,4 @@
-## I'm still updating my page because how the hell do people make it look good???? THIS IS ONLY FOR PONY TOWN!!! Have some stuff anyway:
+## I'm still updating my page because how the hell do people make it look good???? THIS IS FOR PONY TOWN!!! Have some stuff anyway:
 - Natan/Birkin
 - I'm very shy, kinda socially anxious, socially awkward and paranoid
 - I rarely talk first
