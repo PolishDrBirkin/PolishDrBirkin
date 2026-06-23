@@ -1,10 +1,9 @@
 ## I'm still updating my page because how the hell do people make it look good???? THIS IS FOR PONY TOWN!!! Have some stuff anyway:
 - Natan/Birkin
 - I'm very shy, kinda socially anxious, socially awkward and paranoid
-- I rarely talk first
-- I tend to shut down, like with talking or smth
-- I kinda struggle with making friends and keeping convos up but I'm trying my best
-- If you wanna talk anyway, INT freely! I wanna make some friends very much 
+- I rarely talk first but I love talking if someone starts first SO PLS PLS!!!!!!
+- I tend to shut down sometimes 
+- I kinda struggle with making friends but I want to make them so much
 - W2I if I have it in my name since I'm often off tab or semi-afk 😎
 - Spamtenna and Spamton obsessed drools 
 - PFP is from Limited Time Offer By Borderlambs on Ao3!
