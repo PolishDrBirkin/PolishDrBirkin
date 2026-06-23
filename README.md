@@ -1,4 +1,4 @@
-## I made this for pony town!! HI I'm Natan or Birkin
+## I made this for pony town!! HI I'm Natan or Birkin :-D
 - I'm very shy, kinda socially anxious, socially awkward and paranoid
 - I rarely talk first, but I love talking if someone starts first SO PLS PLS DON'T BE SCARED TO INT!!!!!
 - I tend to shut down sometimes though sigh
