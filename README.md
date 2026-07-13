@@ -1,8 +1,7 @@
-## I made this for pony town!! HI I'm Natan or Birkin :-D I made this so people will know about interacting with me since I struggle with socializing ok
-- I'm very shy, kinda socially anxious, socially awkward and paranoid
-- I overthink EVERYTHING pisses
+## I made this for pony town so hi i'm Natan or Birkin
+- I'm very shy, kinda socially anxious, socially awkward and paranoid + I overthink everything pisses
 - I rarely talk first, but I love talking if someone starts first SO PLS PLS INT!!!!!
-- I tend to shut down when I get too shy or some other stuff ngl
+- I tend to shut down 
 - I kinda struggle with social interactions so please be patient
 - W2I if I have it in my name since I'm often off tab or semi-afk 😎
 - i'm Spamtenna and Spamton obsessed drools
