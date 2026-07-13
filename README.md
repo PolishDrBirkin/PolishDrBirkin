@@ -2,7 +2,7 @@
 - I'm very shy, kinda socially anxious, socially awkward and paranoid
 - I overthink EVERYTHING pisses
 - I rarely talk first, but I love talking if someone starts first SO PLS PLS INT!!!!!
-- I tend to shut down sometimes though sigh
+- I tend to shut down when I get too shy or some other stuff ngl
 - I kinda struggle with social interactions so please be patient
 - W2I if I have it in my name since I'm often off tab or semi-afk 😎
 - i'm Spamtenna and Spamton obsessed drools
