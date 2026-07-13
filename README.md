@@ -1,5 +1,5 @@
 ## This is for pony town only
-## Hi I'm Natan or Birkin and I'm male
+## Hi I'm Natan or Birkin
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
 * I kinda struggle with social interactions but I'm working on it
 * I don't talk first most of the time too but INT PLEASE I like talking to people
