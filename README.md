@@ -1,11 +1,9 @@
-## I made this for pony town so hi i'm Natan or Birkin
-- I'm very shy, kinda socially anxious, socially awkward and paranoid + I overthink everything pisses
-- I rarely talk first, but I love talking if someone starts first SO PLS PLS INT!!!!!
-- I tend to shut down 
-- I kinda struggle with social interactions so please be patient
-- W2I if I have it in my name since I'm often off tab or semi-afk 😎
-- i'm Spamtenna and Spamton obsessed drools
-- My fav dr characters are Spamton and Noelle and I kin them both btw
-- PFP is from Limited Time Offer By Borderlambs on Ao3!
-- I'll make a strawpage soon
+## This is for pony town only, I'll just put some info here but I'll make a strawpage soon where I'm def gonna put more things about me
+## Hi I'm Natan or Birkin
+* I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
+* I kinda struggle with social interactions but I'm working on it. I don't talk first most of the time too
+* FREELY C+H!!! I love when people sit down next to me okay, also W2I If I have it in my name cause I'm mostly offtab INT PLEASE!!!
+* Spamton and Noelle kinnie
+* Pfp if from Limited time offer by Borderlambs on AO3
+* Pls read my spamtenna fic link below profile
 <img width="498" height="412" alt="SpamtennaSpamtonGIF (2)" src="https://github.com/user-attachments/assets/8211fdd8-15f7-4938-b37a-1105980357d1" />
