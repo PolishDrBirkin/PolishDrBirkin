@@ -1,8 +1,8 @@
 ## This is for pony town only, I'll just put some info here but I'll make a strawpage soon where I'm def gonna put more things about me
 ## Hi I'm Natan or Birkin
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
-* I kinda struggle with social interactions but I'm working on it. I don't talk first most of the time too
-* FREELY C+H!!! I love when people sit down next to me okay, also W2I If I have it in my name cause I'm mostly offtab INT PLEASE!!!
+* I kinda struggle with social interactions but I'm working on it. I don't talk first most of the time too but INT PLEASE I like talking to people
+* FREELY C+H!!! I love when people sit down next to me okay, also W2I If I have it in my name cause I'm mostly offtab
 * Spamton and Noelle kinnie
 * Pfp if from Limited time offer by Borderlambs on AO3
 * Pls read my spamtenna fic link below profile
