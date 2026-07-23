@@ -1,7 +1,6 @@
 # Hi I'm Natan or Birkin I made this only for pony town, I like making friends with same interests as me!!
 ## Currently I'm often using IWC in my name, because I'm in an awful mood recently, and I tend to get frustrated or insanely sad way easier
 ## FREELY INT AND C+H!! I love when people sit down next to me okay, also W2I If I have it in my name cause I'm mostly offtab
-* I don't do serious rps
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
 * I struggle with social interactions a little bit but I'm working on it, and I don't talk first most of the time
 * Pfp is from Limited time offer by Borderlambs on AO3
