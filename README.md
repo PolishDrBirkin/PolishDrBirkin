@@ -5,6 +5,5 @@
 * I tend to get frustrated pretty easily
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
 * Pfp is from Limited time offer by Borderlambs on AO3
-* Pls read my spamtenna fic link below profile 😎
-## I recommend checking out my strawpage if you wanna know more about me! Also pls sign my ata pls pls..
+## I recommend checking out my strawpage if you wanna know more about me! Also pls sign my ata pls pls.. also pfp is from Limited Time Offer by Borderlambs on Ao3
 <img width="498" height="412" alt="SpamtennaSpamtonGIF (2)" src="https://github.com/user-attachments/assets/8211fdd8-15f7-4938-b37a-1105980357d1" />
