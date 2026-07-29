@@ -4,7 +4,6 @@
 * This also means I may say stuff that may come out different than I wanted, pls be patient about it I never mean to be rude and stuff
 * I tend to get frustrated pretty easily
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
-* Pfp is from Limited time offer by Borderlambs on AO3
 ## I recommend checking out my strawpage if you wanna know more about me! Also pls sign my ata pls pls.. also pfp is from Limited Time Offer by Borderlambs on Ao3
 <img width="300" height="350" alt="mojagjada" src="https://github.com/user-attachments/assets/7845e787-f830-4dcf-bc8c-1f6bd5b3848b" />
 
