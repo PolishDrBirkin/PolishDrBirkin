@@ -1,7 +1,7 @@
 # Hi I'm Natan or Birkin I made this only for pony town, I like making friends with same interests as me!! Stuff about interacting:
 ## PLEASEE INT AND C+H!! W2I If I have it in my name cause I'm often offtab, if I have IWC, it means I may get frustrated or sad WAYY easier okay, I'm pretty sensitive sorry........ I'm actually dfn Spamton/dfn big shot spamton yall..... I'm not lying
 * I kind of don't talk first (sometimes I do), and I struggle with social interactions a little bit
-* This also means I may say stuff that may come out as rude overall, but I never mean to be actually mean it's either accidental or playful
+* This also means I may say stuff that comes out different than I wanted, please be patient about it I never mean to be weird or rude
 * I tend to get frustrated pretty easily
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid
 * I LOVE LOVE CUDDLING WITH PEOPLE!! C+H HEAVILY ENCOURAGED, Idm sitting with ships too if you're not going to try and rp the ship with me!!
