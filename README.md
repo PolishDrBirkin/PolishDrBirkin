@@ -8,6 +8,7 @@
 * I was told I'm very nice, and I always try to be the most respectful and kindest I can when I talk to someone 😛😛😛😛
 * Yall dont be scared of me I'm a cool guy 😎
 ## I recommend checking out my strawpage if you wanna know more about me overall! Also pls sign my ata pls pls.. pfp is from Limited Time Offer by Borderlambs on Ao3!!
+## I also have a apparently good spamtenna fic, link below my profile I would be thankful if people would read it 🥹
 <img width="200" height="200" alt="mojagjada" src="https://github.com/user-attachments/assets/421aa9ff-e4b5-4dc5-a761-cfd45669b2e9" />
 
 
