@@ -11,12 +11,13 @@
 
 * Yall dont be scared of me I'm a cool guy 😎
 
+* Guys check out my strawpage for actually info on me other than interacting, maybe leave gimmicks too heh.....heh.... maybe sign ata too??? Maybe?? Maybe see my spamtenna fanfic too???? Euuhh ok enough I just wanna promote some stuff I have ok..🥹
+
 <img width="531" height="29" alt="Zrzut ekranu 2026-08-06 002910" src="https://github.com/user-attachments/assets/11f5b669-4563-408b-9968-5a82b6437a1e" />  <img width="347" height="28" alt="Zrzut ekranu 2026-08-06 002943" src="https://github.com/user-attachments/assets/1c5c99a4-d6f1-470e-861a-30b4674fc729" />
 
 pt-hall-of-media and pt-walk-of-fame TYSMM OUGH bounces in joy
 
-## I recommend checking out my strawpage if you wanna know more about me overall! Also pls sign my ata pls pls.. pfp is from Limited Time Offer by Borderlambs on Ao3!!
-## I also have a apparently good spamtenna fic, link below my profile I would be thankful if people would read it 🥹
+## pfp is from Limited Time Offer by Borderlambs on Ao3!!
 <img width="200" height="200" alt="mojagjada" src="https://github.com/user-attachments/assets/421aa9ff-e4b5-4dc5-a761-cfd45669b2e9" />
 
 
