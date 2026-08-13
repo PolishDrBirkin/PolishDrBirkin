@@ -1,7 +1,6 @@
 # Hi I'm Natan or Birkin I made this only for pony town, I like making friends with same interests as me!! Stuff about interacting:
-## PLEASEE INT AND C+H!! W2I If I have it in my name cause I'm often offtab
+## PLEASEE INT AND C+H!! W2I If I have it in my name cause I'm often offtab Btw I feel like what I put here is lile.. CORNY AS HELL?? idk I put some stuff that I find important here because I struggle with social interactions lowkey.....
 
-* I kind of don't talk first (Sometimes I do, esp if I'm with friends), and I struggle with social interactions a bit
 * I may say wrong stuff like for example something rude without meaning it. If I do that be patient and just acknowledge me KINDLY, since I never mean to be rude or weird
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid. I also can get frustrated easily if I don't like something ok I'm like a kid ok. Forgive me ok..
 * I LOVE LOVE CUDDLING WITH PEOPLE!! C+H HEAVILY ENCOURAGED, Idm sitting with ships too if you're not going to try and rp the ship with me!!
