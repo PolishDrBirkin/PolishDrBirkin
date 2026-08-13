@@ -1,5 +1,5 @@
 # Hi I'm Natan or Birkin I made this only for pony town, I like making friends with same interests as me!! Stuff about interacting:
-## PLEASEE INT AND C+H!! W2I If I have it in my name cause I'm often offtab
+## PLEASEE INT AND C+H!! W2I If I have it in my name cause I'm often offtab!! Overall talk to me okay okay
 
 * I kinda strugle with social interactions and I may say stuff that comes out different than I wanted. PLEASE be patient about it because I never mean to be rude or weird. Acknowledge me that it was rude KINDLY, and don't attack me for it
 
