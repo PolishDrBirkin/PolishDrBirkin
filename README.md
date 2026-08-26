@@ -5,7 +5,7 @@
 
 * I'm VERY shy, kinda socially anxious too, socially awkward and paranoid. I also can get frustrated easily if I don't like something ok I'm like a kid ok. Forgive me ok.. 
 
-* I LOVE LOVE CUDDLING WITH PEOPLE!! C+H HEAVILY ENCOURAGED, Idm sitting with ships too if you're not going to try and rp the ship with me!! I also love nuzzles ok it's cute I like it nuzzle me drools
+* I LOVE LOVE CUDDLING WITH PEOPLE!! C+H HEAVILY ENCOURAGED, Idm sitting with ships too if you're not going to rp the ship with me!! I also love nuzzles ok it's cute I like it nuzzle me drools
 
 * I was told I'm very nice, and I always try to be the most respectful and kindest I can when I talk to someone. I lowkey can't take it if I do smth rude by an accident 😛😛😛😛
 
