@@ -1,13 +1,12 @@
-# Hi I'm Natan or Birkin I made this only for pony town, I like making friends with same interests as me!! Lowkey I feel like the stuff I put here is so corny but It's about interacting ok:
-## PLEASEE INT AND C+H!! W2I If I have it in my name cause I'm often offtab!! Overall talk to me okay okay
+# Hi I'm Natan or Birkin overall info about me is on my strawpage this is only about interacting! Only for pt
+## C+H AND INT FREELY AND ENCOURAGED!! I love sitting and cuddling with ppl, it's comforting so do it pls, even if you're a ship just don't rp/flirt jokingly with me until you're a friend
 
-## Small info: I'm doing pretty badly recently, so please interact with caution most of the time. Pls forgive me if I'll be salty don't take it to yourself I literally don't know why am I so moody rn 🥹
+Also I'm actually casanova/dfn spam aw aw aw I love him sm.. <img align="right" width="200" height="280" alt="jednak to sticker kys1" src="https://github.com/user-attachments/assets/dbb000a9-c282-4803-a1db-38758e8ea3a4" /> Stickers of him made by soilgrub on bluesky, do not reuse
 
-* I kinda strugle with social interactions and I may say stuff that comes out different than I wanted. PLEASE be patient about it because I never mean to be rude or weird. Acknowledge me that it was rude KINDLY, and don't attack me for it
 
-* I'm VERY shy if I'm alone, kinda socially anxious too, socially awkward and paranoid. I also can get frustrated easily if I don't like something ok I'm like a kid ok. Forgive me ok.. 
+* Sometimes I struggle with communication, and I may say stuff that comes out different than I meant. PLEASE!!!! be patient about it because I never mean to be rude/or say smth that came out wrong. Acknowledge me that it wasn't ok KINDLY, and don't attack me for it
 
-* I LOVE LOVE CUDDLING WITH PEOPLE!! C+H HEAVILY ENCOURAGED, Idm sitting with ships too if you're not going to rp the ship with me!! I also love nuzzles ok it's cute I like it nuzzle me drools
+* I'm VERY shy if I'm alone, maybe socially anxious too I don't actually know, socially awkward and paranoid ough. Sometimes I'm too shy to even say hi to friends so don't think I'm rude for that okok..
 
 * I was told I'm very nice, and I always try to be the most respectful and kindest I can when I talk to someone. I lowkey can't take it if I do smth rude by an accident 😛😛😛😛
 
