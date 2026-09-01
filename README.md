@@ -1,23 +1,28 @@
-# Hi I'm Natan or Birkin overall info about me is on my strawpage this is only about interacting! Only for pt ALSO THIS README IS WIP
+# Hi I'm Natan or Birkin overall info about me is on my strawpage this is only about interacting! Only for pt ok
 ## C+H AND INT FREELY AND ENCOURAGED!! I love sitting and cuddling with ppl, it's comforting so do it pls, even if you're a ship just don't rp/flirt jokingly with me until you're a friend
 
-Also I'm actually casanova/dfn spam aw aw aw I love him sm.. <img align="right" width="200" height="280" alt="jednak to sticker kys1" src="https://github.com/user-attachments/assets/dbb000a9-c282-4803-a1db-38758e8ea3a4" /> Stickers of him made by soilgrub on bluesky, do not reuse
+Also I'm actually casanova/dfn spam aw aw aw I love him sm.. <img align="right" width="190" height="270" alt="jednak to sticker kys1" src="https://github.com/user-attachments/assets/dbb000a9-c282-4803-a1db-38758e8ea3a4" /> Stickers of him made by soilgrub on bluesky, do not reuse
 
-* Sometimes I struggle with communication, and I may say stuff that comes out different than I meant. PLEASE!!!! be patient about it because I never mean to be rude/or say smth that came out wrong. Acknowledge me that it wasn't ok KINDLY, and don't attack me for it
+* Sometimes I struggle with communication, if I say something wrong or rude, pls acknowledge me KINDLY and don't attack me for it. I never mean to say some weird or mean stuff
 
-* I'm VERY shy if I'm alone, maybe socially anxious too I don't actually know, socially awkward and paranoid ough. Sometimes I'm too shy to even say hi to friends so don't think I'm rude for that okok..
+* I'm VERY shy if I'm alone, maybe socially anxious too I don't actually know, socially awkward and paranoid, Sometimes I'm too shy to even say hi to friends so don't think I'm rude for that okok..
 
-* I was told I'm very nice, and I always try to be the most respectful and kindest I can when I talk to someone. I lowkey can't take it if I do smth rude by an accident so be honest if I did something wrong 
+* I try to stay the kindest and respectful as I can when talking to someone. I like talking with others so pls int with me!! I like being playfully mean if the other person plays along or doesn't mind!!
 
-* Yall dont be scared of me I'm a cool guy 😎 Also I love casanova and dfn Spamton overall, I love casanova I'AM casanova omfg
+* other from UTDR, I like resident evil, JoJo, games that I'm too lazy to list, Depeche mode, Type o negative, Tommy cash, The 69 eyes, gothic music overall like Sisters of mercy, Diva destruction, Lebanon hanover the list goes on.
 
-* Sign my ata hmm.. maybe check out my fic if you like spamtenna?? heh...heh.. ok bye bye blow kiss
+* I love gothic things, movies, subculture overall but I'm not actually a goth. I find it hard to make a subculture my whole lifestyle cause I don't like feeling the pressure of it, I need freedom or smth ok
 
-## Pfp is from Limited Time Offer by Borderlambs on Ao3, check it out
+<img align="right" width="268" height="298" alt="image" src="https://github.com/user-attachments/assets/3681dc43-7b00-47cb-95a5-753e0e6829d0" />
+
+* I really really love casanova/ Defernull au overall, Ok that's all I have a dni/thin ice and other stuff on my strawpage. You can sign my ata too or see my fic if you like Spamtenna bye bye blow kissss
 
 <img width="531" height="29" alt="Zrzut ekranu 2026-08-06 002910" src="https://github.com/user-attachments/assets/11f5b669-4563-408b-9968-5a82b6437a1e" />  <img width="347" height="28" alt="Zrzut ekranu 2026-08-06 002943" src="https://github.com/user-attachments/assets/1c5c99a4-d6f1-470e-861a-30b4674fc729" />
 
-pt-hall-of-media and pt-walk-of-fame TYSMM OUGH bounces in joy
+<img align="left" width="491" height="332" alt="Zrzut ekranu 2026-08-31 145626" src="https://github.com/user-attachments/assets/b339e0e5-dfe8-44c2-b21e-cca767cb0d00" />
+<--- credits for this image !! [title](https://underfell.tumblr.com/tagged/dnspamton/page/2)
+
+
 
 
 
