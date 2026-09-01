@@ -20,7 +20,8 @@ Also I'm actually casanova/dfn spam aw aw aw I love him sm.. <img align="right" 
 <img width="531" height="29" alt="Zrzut ekranu 2026-08-06 002910" src="https://github.com/user-attachments/assets/11f5b669-4563-408b-9968-5a82b6437a1e" />  <img width="347" height="28" alt="Zrzut ekranu 2026-08-06 002943" src="https://github.com/user-attachments/assets/1c5c99a4-d6f1-470e-861a-30b4674fc729" />
 
 <img align="left" width="491" height="332" alt="Zrzut ekranu 2026-08-31 145626" src="https://github.com/user-attachments/assets/b339e0e5-dfe8-44c2-b21e-cca767cb0d00" />
-<--- credits for this image !! [title](https://underfell.tumblr.com/tagged/dnspamton/page/2)
+
+<--- [credits for this image! click!](https://underfell.tumblr.com/tagged/dnspamton/page/2)
 
 
 
