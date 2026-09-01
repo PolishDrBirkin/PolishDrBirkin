@@ -1,4 +1,4 @@
-# Hi I'm Natan or Birkin overall info about me is on my strawpage this is only about interacting! Only for pt ok
+# Hi I'm Natan or Birkin this readme is for pony town only, this is mostly about interacting more info about me on my strawpage
 ## C+H AND INT FREELY AND ENCOURAGED!! I love sitting and cuddling with ppl, it's comforting so do it pls, even if you're a ship just don't rp/flirt jokingly with me until you're a friend
 
 Also I'm actually casanova/dfn spam aw aw aw I love him sm.. <img align="right" width="190" height="270" alt="jednak to sticker kys1" src="https://github.com/user-attachments/assets/dbb000a9-c282-4803-a1db-38758e8ea3a4" /> Stickers of him made by soilgrub on bluesky, do not reuse
