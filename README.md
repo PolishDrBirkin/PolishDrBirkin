@@ -23,8 +23,6 @@ Also I'm actually casanova/dfn spam aw aw aw I love him sm.. <img align="right" 
 
 <--- [credits for this image! click!](https://underfell.tumblr.com/tagged/dnspamton/page/2)
 
-PFP MADE BY BORDERLAMBS ON AO3 AND X!
-
 
 
 
