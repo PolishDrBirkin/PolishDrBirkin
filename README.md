@@ -1,4 +1,4 @@
-# Hi I'm Natan or Birkin this readme is for pony town only. More about me overall is on my strawpage that is gonna be remade ok
+# Hi I'm Natan or Birkin this readme is for pony town only. MORE ABOUT ME WILL BE ON STRAW BUT IM REMAKING IT!!! FINALLY???
 ## C+H AND INT FREELY AND ENCOURAGED!! I love sitting and cuddling with ppl, it's comforting so do it pls, even if you're a ship just don't rp/flirt jokingly with me until you're a friend
 
 ## Pony town's Casanova/dfn Spamton because I love him so much awh awh.... <img align="right" width="190" height="270" alt="jednak to sticker kys1" src="https://github.com/user-attachments/assets/dbb000a9-c282-4803-a1db-38758e8ea3a4" /> Stickers of casanova made by soilgrub on bluesky, do not reuse
