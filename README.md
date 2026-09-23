@@ -8,13 +8,13 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 
 * I'm VERY shy if I'm alone, maybe socially anxious too I don't actually know, kind of socially awkward too. Sometimes I'm too shy to even say hi to friends so don't think I'm rude for that okok 🥹
 
-* I tend to overthink a lot of stuff and I'm quite paranoid too ew!!! Pls don't say rude stuff to me cause it can make me get very miserable since I'm quite sensitive. I don't mind friends being PLAYFULLY mean with me if I play along, but I may start thinking that these are not jokes after some time and I need reassurance sorry ok
+* I tend to overthink a lot of stuff and I'm quite paranoid too + I'm quite sensitive, PLS DON'T SAY RUDE STUFF TO ME it can make me very miserable!! I don't mind friends being PLAYFULLY mean with me if I play along, but I may start thinking that these are not jokes after some time and I need reassurance sorry ok
   
-* If I find someone rude in some way or annoying I'll prob just block, don't take it personally cause as I said I'm pretty sensitive!! Don't think that I hate ppl who I block or smth please I mostly don't even remember who I blocked 😭 If you don't like smth that I'm doing don't come up to me and attack me JUST BLOCK OK
+* If I find someone rude in some way or annoying I'll prob just block, don't take it personally cause as I said I'm pretty sensitive and I just do it so I'll be more comfortable. I DONT HAVE ANYTHING AGAINST PPL I BLOCK OK
 
-* I sometimes struggle with making some stuff come out the way I mean to so If I ever say something rude/weird IT'S BY ACCIDENT, pls acknowledge me kindly that it's not okay and don't attack me for it I don't mean to be anyhow rude!!
+* I sometimes struggle with making some stuff come out the way I mean to so If I ever say something rude/weird IT'S BY ACCIDENT, pls acknowledge me kindly that it's not okay and don't attack me for it, I don't mean to be anyhow rude!!
 
-* I TRY TO STAY THE MOST RESPECTFUL AND NICE I CAN BE!! (except to Carry, YOU SUCK!!!!), I never judge and even if we know each other shortly I'll always try to help or listen to your problems <33 Pls don't hesitate to talk to me I'll give everyone a forehead kiss OK ITS ALL ABOUT INTERACTING
+* I TRY TO STAY THE MOST RESPECTFUL AND NICE I CAN BE!! (except to Carry, YOU SUCK!!!!/satire), I never judge and even if we know each other shortly I'll always try to help or listen to your problems <33 Pls don't hesitate to talk to me I'll give everyone a forehead kiss OK ITS ALL ABOUT INTERACTING
 
 * Other than UTDR, I love resident evil, JoJo, other games but I'm too lazy to list, Depeche Mode, Type O negative, Tommy Cash, gothic music like Sisters of Mercy, Lebanon Hanover, Diva destruction, Theatre of Tragedy (idk if it counts ngl) and the list goes oooon
 
