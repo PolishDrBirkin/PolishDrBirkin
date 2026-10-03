@@ -19,7 +19,9 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 * I'm really into the gothic subculture, I love the music, architecture, I share same politic views I like the movies and stuff BUTTTT I dont label myself as goth cause I can't make a subculture my whole lifestyle. I hate feeling the pressure of smth hovering over my life wow freedom mentioned insert the freedom motif here 
 
 <img align="right" width="268" height="298" alt="image" src="https://github.com/user-attachments/assets/3681dc43-7b00-47cb-95a5-753e0e6829d0" />
+
 ## Dni/ thin ice and some other bs is on my strawpage you can also sign my ata if you like ok ok 👀👀👀👀
+
 <img align="left" width="491" height="332" alt="Zrzut ekranu 2026-08-31 145626" src="https://github.com/user-attachments/assets/b339e0e5-dfe8-44c2-b21e-cca767cb0d00" />
 
 <--- [credits for this image! click!](https://underfell.tumblr.com/tagged/dnspamton/page/2)
