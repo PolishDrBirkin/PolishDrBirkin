@@ -20,7 +20,7 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 
 <img align="right" width="268" height="298" alt="image" src="https://github.com/user-attachments/assets/3681dc43-7b00-47cb-95a5-753e0e6829d0" />
 
-## Dni/ thin ice and some other bs is on my strawpage you can also sign my ata if you like ok ok 👀👀👀👀
+## Dni/ thin ice and some other bs is on my strawpage even if it's still wip, you can also sign my ata if you like ok ok 👀👀👀👀
 
 <img align="left" width="491" height="332" alt="Zrzut ekranu 2026-08-31 145626" src="https://github.com/user-attachments/assets/b339e0e5-dfe8-44c2-b21e-cca767cb0d00" />
 
