@@ -9,8 +9,6 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 * I'm VERY shy if I'm alone, maybe socially anxious too I don't actually know, kind of socially awkward too. Sometimes I'm too shy to even say hi to friends so don't think I'm rude for that okok 🥹
 
 * I tend to overthink a lot of stuff and I'm quite paranoid too + I'm quite sensitive, PLS DON'T SAY RUDE STUFF TO ME it can make me very miserable!! I don't mind friends being PLAYFULLY mean with me if I play along, but I may start thinking that these are not jokes after some time and I need reassurance sorry ok
-  
-* If I find someone rude in some way or annoying I'll prob just block, don't take it personally cause as I said I'm pretty sensitive and I just do it so I'll be more comfortable. I DONT HAVE ANYTHING AGAINST PPL I BLOCK OK
 
 * I sometimes struggle with making some stuff come out the way I mean to so If I ever say something rude/weird IT'S BY ACCIDENT, pls acknowledge me kindly that it's not okay and don't attack me for it, I don't mean to be anyhow rude!!
 
@@ -18,12 +16,10 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 
 * Other than UTDR, I love resident evil, JoJo, other games but I'm too lazy to list, Depeche Mode, Type O negative, Tommy Cash, gothic music like Sisters of Mercy, Lebanon Hanover, Diva destruction, Theatre of Tragedy (idk if it counts ngl) and the list goes oooon
 
-* I'm really into the gothic subculture, I love the music, clothes, I share same politic views I like the movies and stuff BUTTTT I dont label myself as goth cause I can't make a subculture my whole lifestyle. I hate feeling the pressure of smth hovering over my life wow freedom mentioned insert the freedom motif here 
+* I'm really into the gothic subculture, I love the music, architecture, I share same politic views I like the movies and stuff BUTTTT I dont label myself as goth cause I can't make a subculture my whole lifestyle. I hate feeling the pressure of smth hovering over my life wow freedom mentioned insert the freedom motif here 
 
 <img align="right" width="268" height="298" alt="image" src="https://github.com/user-attachments/assets/3681dc43-7b00-47cb-95a5-753e0e6829d0" />
-
-# OK Lowkey I think I put the important stuff here congrats if you read it all?? AND THANKS TOO? I'll make a strawpage soon where I'll move some of the info to cause there's too much and it's kinda annoying nooo OK THANK YOU ONCE AGAIN you can sign my ata too maybe 👀👀
-
+## Dni/ thin ice and some other bs is on my strawpage you can also sign my ata if you like ok ok 👀👀👀👀
 <img align="left" width="491" height="332" alt="Zrzut ekranu 2026-08-31 145626" src="https://github.com/user-attachments/assets/b339e0e5-dfe8-44c2-b21e-cca767cb0d00" />
 
 <--- [credits for this image! click!](https://underfell.tumblr.com/tagged/dnspamton/page/2)
