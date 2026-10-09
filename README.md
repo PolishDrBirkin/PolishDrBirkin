@@ -10,7 +10,7 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 
 * I tend to overthink a lot of stuff and I'm quite paranoid too. I'm also pretty sensitive and I struggle with interpretating the stuff it should be so this also means that if you're rude to me as a joke I may not realize you're joking
 
-* Sometimes I struggle with making some stuff come out the way I meant to. If I say something rude/weird IT'S BY ACCIDENT, pls acknowledge me that it's not okay and don't attack me for it, I don't mean to be a dick until someone actually pisses me off
+* Sometimes I struggle with making some stuff come out the way I meant to. If I say something rude/weird IT'S BY ACCIDENT, pls acknowledge me that it's not okay and don't attack me for it, I don't mean to be a dick 
 
 * I TRY TO STAY THE MOST RESPECTFUL AND NICEST I CAN BE!! (except to Carry, YOU SUCK!!!!/satire), even if we know each other shortly I'll always try to help or listen to your problems, Pls don't hesitate to talk to me I'll give everyone a forehead kiss OK ITS ALL ABOUT INTERACTING
 
