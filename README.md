@@ -12,7 +12,7 @@ Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!
 
 * Sometimes I struggle with making some stuff come out the way I meant to. If I say something rude/weird IT'S BY ACCIDENT, pls acknowledge me that it's not okay and don't attack me for it, I don't mean to be a dick 
 
-* I TRY TO STAY THE MOST RESPECTFUL AND NICEST I CAN BE!! (except to Carry, YOU SUCK!!!!/satire), even if we know each other shortly I'll always try to help or listen to your problems, Pls don't hesitate to talk to me I'll give everyone a forehead kiss OK ITS ALL ABOUT INTERACTING
+* I TRY TO STAY THE MOST RESPECTFUL AND NICEST I CAN BE!! (except to Carry, YOU SUCK!!!!/satire), even if we know each other shortly I'll always try to help or listen to your problems, Pls don't hesitate to talk to me!!!! I'll give everyone a forehead kiss OK ITS ALL ABOUT INTERACTING
 
 * Other than UTDR, I love resident evil, JoJo, other games that I put on my strawpage instead, Depeche Mode, Type O negative, Tommy Cash, gothic music like Sisters of Mercy, Lebanon Hanover, Diva destruction, Theatre of Tragedy (idk if it counts ngl) and the list goes oooon
 
