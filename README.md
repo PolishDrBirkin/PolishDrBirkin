@@ -9,3 +9,8 @@
 #### <p align="center"> _DNI if you're racist, homophobic, transphobic, proshiper darkshiper etc etc, technically basic dni list_
 
 ### <p align="center"> [About interacting + thin ice](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
+
+<p align="center"> <img width="200" height="220" alt="image" src="https://github.com/user-attachments/assets/0496836e-46b0-4d96-b626-fe432ec25221" /> <img width="160" height="220" alt="image" src="https://github.com/user-attachments/assets/3622185b-957d-4cfe-b944-8fc93214c688">
+  
+### <p align="center"> _CREDITS: Casanova stickers by @soilgrub on bluesky, do not reuse please! The drawing at the top of my readme is by Underfellx on tumblr!_
+
