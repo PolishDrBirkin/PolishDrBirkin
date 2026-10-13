@@ -12,5 +12,5 @@
 
 <p align="center"> <img width="200" height="220" alt="image" src="https://github.com/user-attachments/assets/0496836e-46b0-4d96-b626-fe432ec25221" /> <img width="160" height="220" alt="image" src="https://github.com/user-attachments/assets/3622185b-957d-4cfe-b944-8fc93214c688">
   
-### <p align="center"> _CREDITS: Casanova stickers by @soilgrub on bluesky, do not reuse please! The drawing at the top of my readme is by Underfellx on tumblr!_
+#### <p align="center"> _CREDITS: Casanova stickers by @soilgrub on bluesky, do not reuse please! The drawing at the top of my readme is by Underfellx on tumblr!_
 
