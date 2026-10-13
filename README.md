@@ -8,5 +8,9 @@
 #### <p align="center"> _I am often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
 #### <p align="center"> _DNI if you're racist, homophobic, transphobic, proshiper darkshiper etc etc, technically basic dni list_
 
-[About interacting](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
+### <p align="center"> [About interacting](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
+
+<p align="centre"> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/cd7eb5db-8d1e-4832-97ac-b023a1c0ebf8" /> <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a7f3406f-5165-405e-92ad-7822644db2b7" />
+
+
 
