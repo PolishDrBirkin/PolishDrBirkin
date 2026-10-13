@@ -1,3 +1,4 @@
+# <p align="center"> Currently writing a spamtenna fic called [The rise and fall of Spamton G Spamton](https://archiveofourown.org/works/84337401/chapters/222445541)
 <p align="center"> <img width="800" height="500" alt="image" src="https://github.com/user-attachments/assets/71d3f68a-d6fd-49fa-9112-116888372431" />
 
 
