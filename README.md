@@ -4,8 +4,8 @@
   
 <p align="center"> <img width="800" height="500" alt="image" src="https://github.com/user-attachments/assets/71d3f68a-d6fd-49fa-9112-116888372431" />
   
-#### <p align="center"> _Yello I'm Birkin or Natan, C+H HEAVILY ENCOURAGED!! Don't feel scared to talk to me since I'am very friendly!!_
-#### <p align="center"> _I am often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
+#### <p align="center"> _Yello I'm Birkin or Natan, C+H HEAVILY ENCOURAGED!! Don't feel scared to talk to me since I'm very friendly!!_
+#### <p align="center"> _I'm often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
 #### <p align="center"> _DNI if you're racist, homophobic, transphobic, proshiper darkshiper etc etc, technically basic dni list_
 
 ### <p align="center"> [About interacting](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
