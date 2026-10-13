@@ -1,6 +1,7 @@
-# Hi I'm Natan or Birkin this read me is mostly about interacting, more stuff is on my strawpage that has some good info too I think 
-<img width="356" height="34" alt="Zrzut ekranu 2026-09-23 110903" src="https://github.com/user-attachments/assets/7efaab52-703f-41bf-9a19-0e705783ffed" />
-<img width="525" height="38" alt="Zrzut ekranu 2026-09-23 110932" src="https://github.com/user-attachments/assets/8aba1bb1-c863-451a-a90a-ea9d2accfc22" />
+<p align="center"> Hi I'm Birkin or Natan, C+H HEAVILY ENCOURAGED 
+  
+<p align="center"> <img width="356" height="34" alt="Zrzut ekranu 2026-09-23 110903" src="https://github.com/user-attachments/assets/7efaab52-703f-41bf-9a19-0e705783ffed" />
+<p align="center"> <img width="525" height="38" alt="Zrzut ekranu 2026-09-23 110932" src="https://github.com/user-attachments/assets/8aba1bb1-c863-451a-a90a-ea9d2accfc22" />
 
 Pony town's Defernull Spamton/Casanova I LOVE DEFERNULL SO MUCH OH MY GOD?!?!??!?!!? CASANOVA STICKERS MADE BY SOILGRUB ON BLUESKY, PLEASE don't reuse Ok about interacting:
 
