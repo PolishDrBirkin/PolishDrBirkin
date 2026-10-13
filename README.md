@@ -8,4 +8,4 @@
 #### <p align="center"> _I'm often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
 #### <p align="center"> _DNI if you're racist, homophobic, transphobic, proshiper darkshiper etc etc, technically basic dni list_
 
-### <p align="center"> [About interacting and thin ice](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
+### <p align="center"> [About interacting + thin ice](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
