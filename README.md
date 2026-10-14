@@ -7,7 +7,7 @@
 #### <p align="center"> _I'm Birkin or Natan, C+H HEAVILY ENCOURAGED!! Don't feel scared to talk to me since I'm very friendly!!_
 #### <p align="center"> _I'm often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
 #### <p align="center"> _DNI if you're racist, homophobic, transphobic, proshiper darkshiper etc etc, technically basic dni list_
-#### <p align="center"> _I'm very shy and may be socially awkward if I'm not with my friends_
+#### <p align="center"> _I'm shy and may be socially awkward if I'm not with my friends see links below for more!_
 
 ### <p align="center"> [About interacting + thin ice](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://birkingimmicks.straw.page)
 
