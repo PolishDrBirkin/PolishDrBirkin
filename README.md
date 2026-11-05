@@ -9,8 +9,8 @@
   
 #### <p align="center"> _I'm Birkin or Natan, C+H HEAVILY ENCOURAGED!! Don't feel scared to talk to me since I'm very friendly!!_
 #### <p align="center"> _I'm often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
-#### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool
-#### <p align="center"> _I'm shy and may be socially awkward if I'm not with my friends some more stuff below
+#### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool_
+#### <p align="center"> _I'm shy and may be socially awkward if I'm not with my friends some more stuff below_
 
 ### <p align="center"> [About interacting + thin ice](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://drbirkin.atabook.org)
 
