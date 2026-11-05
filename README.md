@@ -1,3 +1,4 @@
+## <p align="center"> I'm gonna remake that page soon, since it's kinda outdated
 ### <p align="center"> _A friend of mine is trying to gain money for his transition, if you can, please support him by buying a [comission!](https://x.com/rosesysss/status/2109422834728735057?s=20)_
 ### <p align="center"> _Currently writing a spamtenna fic called [The rise and fall of Spamton G Spamton](https://archiveofourown.org/works/84337401/chapters/222445541)_
 <p align="center"> <img width="356" height="34" alt="Zrzut ekranu 2026-09-23 110903" src="https://github.com/user-attachments/assets/7efaab52-703f-41bf-9a19-0e705783ffed" />
@@ -8,8 +9,8 @@
   
 #### <p align="center"> _I'm Birkin or Natan, C+H HEAVILY ENCOURAGED!! Don't feel scared to talk to me since I'm very friendly!!_
 #### <p align="center"> _I'm often offtab so W2I if I have it in my name! Do not copy my ponies please, inspiration is okay!_
-#### <p align="center"> _DNI if you're racist, homophobic, transphobic, proshiper darkshiper etc etc, technically basic dni list_
-#### <p align="center"> _I'm shy and may be socially awkward if I'm not with my friends see links below for more info!_
+#### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool
+#### <p align="center"> _I'm shy and may be socially awkward if I'm not with my friends some more stuff below
 
 ### <p align="center"> [About interacting + thin ice](https://birkinguy.straw.page) [About ME](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://drbirkin.atabook.org)
 
