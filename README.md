@@ -14,7 +14,7 @@
 #### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool! If someone's bothering me in some way I hide freely, don't attack me over it please_
 #### <p align="center"> _I'm shy + kinda socially awkward. Sometimes I struggle with socializing so I'll just say this: please be patient with me. Tone tags are also appreciated!_
 
-### <p align="center"> [More about me](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://drbirkin.atabook.org)
+### <p align="center"> [Strawpage](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://drbirkin.atabook.org)
 
 <p align="center"> <img width="200" height="220" alt="image" src="https://github.com/user-attachments/assets/0496836e-46b0-4d96-b626-fe432ec25221" /> <img width="160" height="220" alt="image" src="https://github.com/user-attachments/assets/3622185b-957d-4cfe-b944-8fc93214c688">
   
