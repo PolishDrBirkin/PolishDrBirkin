@@ -13,6 +13,7 @@
 #### <p align="center"> _If I'm alone and I have W2I in my name, I'm most likely offtab. Feel free to sit with me it's super nice_
 #### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool! If someone's bothering me in some way I hide freely, don't attack me over it please_
 #### <p align="center"> _I'm shy + kinda socially awkward. Sometimes I struggle with socializing so I'll just say this: please be patient with me. Tone tags are also appreciated!_
+#### <p align="center"> _Send me gimmicks pls.. or sign my ata.. pls.._
 
 ### <p align="center"> [Strawpage](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://drbirkin.atabook.org)
 
