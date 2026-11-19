@@ -1,5 +1,6 @@
 ### <p align="center"> _A friend of mine is trying to gain money for his transition, if you can, please support him by buying a [comission!](https://x.com/rosesysss/status/2109422834728735057?s=20)_
 ### <p align="center"> _Currently writing a spamtenna fic called [The rise and fall of Spamton G Spamton](https://archiveofourown.org/works/84337401/chapters/222445541)_ 👀
+<p align="center"> My strawpage broke on its own I'll fix it one day ok ok 
 <p align="center"> <img width="356" height="34" alt="Zrzut ekranu 2026-09-23 110903" src="https://github.com/user-attachments/assets/7efaab52-703f-41bf-9a19-0e705783ffed" />
 <p align="center"> <img width="525" height="38" alt="Zrzut ekranu 2026-09-23 110932" src="https://github.com/user-attachments/assets/8aba1bb1-c863-451a-a90a-ea9d2accfc22" />
 <p align="center"> <img width="610" height="50" alt="image" src="https://github.com/user-attachments/assets/59ad2c6e-2080-4b08-8287-ecd2e551a947" />
