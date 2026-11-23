@@ -12,7 +12,7 @@
   
 #### <p align="center"> _Hi I'm Birkin or Natan, C+H HEAVILY ENCOURAGED!! Don't feel scared to talk to me since I'm very friendly and open to making friends from the same fandoms!_
 #### <p align="center"> _If I'm alone and I have W2I in my name, I'm most likely offtab. Feel free to sit with me it's super nice_
-#### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool! I hide freely, so don't attack me over it. If you're rude you're on thin ice since I'm a sensitive person sorry ok_
+#### <p align="center"> _Basic DNI, don't be a dick or a weirdo and we're cool! I hide freely, so don't attack me over it. If you're rude you're on thin ice sorry ok_
 #### <p align="center"> _I'm shy + kinda socially awkward. Sometimes I struggle with socializing so I'll just say this: please be patient with me. Tone tags are also appreciated!_
 #### <p align="center"> _Send me gimmicks pls.. or sign my ata.. pls.._
 
