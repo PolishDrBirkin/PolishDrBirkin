@@ -5,7 +5,7 @@
 <p align="center"> <img width="356" height="34" alt="Zrzut ekranu 2026-09-23 110903" src="https://github.com/user-attachments/assets/7efaab52-703f-41bf-9a19-0e705783ffed" />
 <p align="center"> <img width="525" height="38" alt="Zrzut ekranu 2026-09-23 110932" src="https://github.com/user-attachments/assets/8aba1bb1-c863-451a-a90a-ea9d2accfc22" />
 <p align="center"> <img width="610" height="50" alt="image" src="https://github.com/user-attachments/assets/59ad2c6e-2080-4b08-8287-ecd2e551a947" />
-  
+<p align="center"> Big BIG Casanova and overall Defernull Spamton lover, if I see you in a casanova pony I'll most likely come to compliment you cause I love everyone who makes him
 ### <p align="center">_Scroll down for info about me_
 
 
