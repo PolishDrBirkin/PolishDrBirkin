@@ -10,7 +10,7 @@
 #### <p align="center"> Big BIG Casanova and overall Defernull Spamton lover, if I see you in a casanova pony I'll most likely come to compliment you cause I love everyone who makes him
 #### <p align="center"> Basic DNI, don't be an asshole or a weirdo and we should be cool! I hide freely, so don't attack me over it. If you're rude you're on thin ice sorry ok
 #### <p align="center"> I'm shy + kinda socially awkward so PLEASE be patient with me, tone tags are also appreciated
-#### <p align="center"> If a friend of mine is rude pls don't take them seriously, sorry for them in advance ok I can't really do anything with it 
+#### <p align="center"> If a friend of mine is rude pls don't take them seriously, sorry for them in advance I can't really do anything with it okay gulps
 #### <p align="center"> If you want more info pls see my strawpage, send me GIMMICKS PLEASE OR SIGN MY ATA PLEASE. PLAEASE
 ### <p align="center"> [Strawpage](https://polishdrbirkin.straw.page) [Gimmicks](https://birkingimmicks.straw.page) [Ata book](https://drbirkin.atabook.org)
 
